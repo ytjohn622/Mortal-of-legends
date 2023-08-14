@@ -1,2 +1,1 @@
-# Mortal-of-legends
-Play this game to earning money 💵
+ai gpu chat
